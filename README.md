@@ -1,2 +1,3 @@
 # CFUK
 Canadian Fuck Up Kit
+Voici le début j'ose espèrer d'une association FOCTIONELLE avec mon père......
